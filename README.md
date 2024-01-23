@@ -1,3 +1,3 @@
 # Kelompok1
-poke
+JERIKO poke
 
