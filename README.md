@@ -1,2 +1,24 @@
 # Kelompok1
 poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
+poke
