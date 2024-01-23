@@ -1,5 +1,5 @@
 # Kelompok1
 PANDJIE ❤ JERIKO <br>
-FACHRI ❤ RACHEL <br>
+Lalap <br>
 HILAL ❤ JERIKO <br>
 PANDJIE ❤ JERIKO <br>
