@@ -1,3 +1,2 @@
 # Kelompok1
-JERIKO poke <br>
-poke poke romawi
+pari poke kacung
